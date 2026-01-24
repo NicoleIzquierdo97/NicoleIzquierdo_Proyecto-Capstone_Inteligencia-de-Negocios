@@ -1,0 +1,1 @@
+# NicoleIzquierdo_Proyecto-Capstone_Inteligencia-de-Negocios
